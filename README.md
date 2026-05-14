@@ -1,2 +1,0 @@
-# LLLUMM
-LUCID DREAming
